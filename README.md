@@ -48,7 +48,7 @@ Outside of my academic journey, I enjoy:
 
 ## 📫 Connect with Me  
 - [LinkedIn](www.linkedin.com/in/muhammad-abdullah-zahid14)  
-- [GitHub](https://github.com/your-github-username)  
+- [GitHub](https://github.com/Lucid1498/Muhammmad-Abdullah-Zahid?tab=readme-ov-file)  
 
 ---
 
